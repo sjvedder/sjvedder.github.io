@@ -1,2 +1,9 @@
 # sjvedder.github.io
-Main Github Page
+Main Github Page<br>
+ ████   ███<br>
+█ ░░░░   █░░<br>
+ ███░░░  █░░░<br>
+  ░░█ █  █░░<br>
+████░░ ██ ░░<br>
+ ░░░░ ░ ░░ ░<br> 
+  ░░░░   ░░<br>
